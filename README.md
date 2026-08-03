@@ -4,7 +4,7 @@ So this statement will be addressing the allegations made in a recent youtube vi
 
 ---
 
-<img width="1886" height="579" alt="image" src="https://github.com/user-attachments/assets/3d96550f-48eb-4af7-bd72-1f3847d2b4e2" />
+<img width="1886" height="579" alt="image" src="https://github.com/user-attachments/assets/0c8b4f08-5386-4f2e-a7f7-5391aa765628" />
 
 ## Nathan
 
@@ -12,7 +12,7 @@ To just start this off, me and Nathan (bagel) were dating for around 1 month bef
 
 This screenshot is a satire/joke recreation of a twitter post, may of been a reddit post or a gif, cannot remember exactly. 
 
-<img width="1884" height="1012" alt="image" src="https://github.com/user-attachments/assets/be140ff0-7b3d-4cbb-a51b-c34ce93b72f9" />
+<img width="1884" height="1012" alt="image" src="https://github.com/user-attachments/assets/a02236e3-fdeb-4a0e-9f3c-fea17c676613" />
 
 as you can see here he is a fan of recreating gifs 
 
