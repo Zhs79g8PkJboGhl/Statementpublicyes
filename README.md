@@ -14,9 +14,6 @@ This screenshot is a satire/joke recreation of a twitter post, may of been a red
 
 <img width="1884" height="1012" alt="image" src="https://github.com/user-attachments/assets/a02236e3-fdeb-4a0e-9f3c-fea17c676613" />
 
-as you can see here he is a fan of recreating gifs 
-
-
 <img width="1859" height="1067" alt="image" src="https://github.com/user-attachments/assets/0a0d1484-f2b0-44f4-8c8a-761d169d7cf2" />
 
 Again this image is just another terrible satire joke about Lewis being a "ltg" and Nathan calling me a "htg" and then it devolves into hell...
