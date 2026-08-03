@@ -17,7 +17,7 @@ This screenshot is a satire/joke recreation of a twitter post, may of been a red
 as you can see here he is a fan of recreating gifs 
 
 
-<img width="1859" height="1067" alt="image" src="https://github.com/user-attachments/assets/5657dd3d-dc2e-44c5-ac5f-c9094674aaf4" />
+<img width="1859" height="1067" alt="image" src="https://github.com/user-attachments/assets/0a0d1484-f2b0-44f4-8c8a-761d169d7cf2" />
 
 Again this image is just another terrible satire joke about Lewis being a "ltg" and Nathan calling me a "htg" and then it devolves into hell...
 
@@ -45,11 +45,11 @@ WE NEVER HAD "ESEX" and i had 0 intentions of "flying out"...
 
 To address the fact that i "knew gornac was 15" 
 
-<img width="1879" height="1052" alt="image" src="https://github.com/user-attachments/assets/30b9e40a-d02e-4df1-bad1-f39d8e4eb473" />
+<img width="1879" height="1052" alt="image" src="https://github.com/user-attachments/assets/9785c2e6-5937-48ba-a782-5ccaa465d7e6" />
 
 Here is a gif gornac created whilst i was talking to them, in this image i was 17 and was under the assumption they were 16
 
-<img width="1219" height="465" alt="image" src="https://github.com/user-attachments/assets/db94edfe-f0dc-45c0-a8ab-b199b46fc369" />
+<img width="1879" height="1052" alt="image" src="https://github.com/user-attachments/assets/1bdfc389-d6bb-4099-b129-17512289a537" />
 
 
 ---
@@ -66,10 +66,10 @@ For the people with 2 braincells, the clip in the video taken by axle (the perso
 
 (here is axle saying some STRANGE things which are also hopefully satire)
 
-<img width="687" height="217" alt="image" src="https://github.com/user-attachments/assets/af1c1330-f9b0-4a91-8464-827d1b0118c7" />
+<img width="687" height="217" alt="image" src="https://github.com/user-attachments/assets/77203b85-4db8-4494-867f-77846cdbafb5" />
 
 
-<img width="665" height="150" alt="image" src="https://github.com/user-attachments/assets/291487bf-8a5f-4a66-851d-0465081f5662" />
+<img width="665" height="150" alt="image" src="https://github.com/user-attachments/assets/9e957644-3f2c-4c24-9bc2-c843c5bc4f9b" />
 
 
 
@@ -77,7 +77,7 @@ For the people with 2 braincells, the clip in the video taken by axle (the perso
 
 The screenshot refers to me getting angry/upset that my parents were not leaving me alone and instead of just leaving for 5 minutes so i could get ready to shower kept pestering me saying "you have 5 minutes" (i asked them to go and sit on the outside sitting space to give me space and let me shower.) and then "you DON'T have time for a shower now" (i DID indeed have a shower as if i am EVER leaving the house it is a requirement to have a shower!!!!)
 
-<img width="1369" height="1022" alt="image" src="https://github.com/user-attachments/assets/d6555a48-52b4-40e4-b14d-538242d1bf58" />
+<img width="1369" height="1022" alt="image" src="https://github.com/user-attachments/assets/413891db-d85d-418a-bc82-f8c0cb0be8dd" />
 
 
 
@@ -97,10 +97,9 @@ Nathan and his current partner have both admitted and shared to each other conte
 
 In this screenshot Nathan says something vile and i try to dodge the statement by saying "we can play it" and then "in 2077" obviously referring to cyberpunk 2077
 
-<img width="1058" height="672" alt="image" src="https://github.com/user-attachments/assets/1169ac08-8591-4691-b801-c974cd6eb95f" />
+<img width="1058" height="672" alt="image" src="https://github.com/user-attachments/assets/f7a16656-3915-4b0d-95d3-12029dfc2a3f" />
 
-
-<img width="863" height="791" alt="image" src="https://github.com/user-attachments/assets/fbfaf895-59b2-41f9-98cc-b95030fcba63" />
+<img width="863" height="791" alt="image" src="https://github.com/user-attachments/assets/40022ead-6c29-4d4c-9b8e-5c1e097ea700" />
 
 God, his search history must be horrid.
 
@@ -108,7 +107,7 @@ God, his search history must be horrid.
 
 Again in this screenshot i try to dodge him saying it 
 
-<img width="1319" height="591" alt="image" src="https://github.com/user-attachments/assets/7ee42ea0-7347-4bff-8f67-8907ed6b6042" />
+<img width="1319" height="591" alt="image" src="https://github.com/user-attachments/assets/f8d9127f-3386-49eb-bc59-ae45a3ea2869" />
 
 ## The mother thing?!?!?
 
