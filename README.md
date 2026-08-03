@@ -89,7 +89,7 @@ How the screenshot of my twitter recent searches came around:
 
 I genuinely did not believe that it was not blocked and was shocked when it wasn't.
 
-Nathan and his current partner have both admitted and shared to each other content of that sort and also shared explicit images of each other to each other (penny is 18 and Nathan is 16, penny is OLDER than me.)
+Nathan and his current partner have both admitted to sharing each other content of that sort and also shared explicit images of each other to each other (penny is 18 and Nathan is 16, penny is OLDER than me.)
 
 
 In this screenshot Nathan says something vile and i try to dodge the statement by saying "we can play it" and then "in 2077" obviously referring to cyberpunk 2077
