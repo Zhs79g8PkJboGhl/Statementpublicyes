@@ -46,8 +46,7 @@ To address the fact that i "knew gornac was 15"
 
 Here is a gif gornac created whilst i was talking to them, in this image i was 17 and was under the assumption they were 16
 
-<img width="1879" height="1052" alt="image" src="https://github.com/user-attachments/assets/1bdfc389-d6bb-4099-b129-17512289a537" />
-
+<img width="1131" height="467" alt="image" src="https://github.com/user-attachments/assets/b21e7eb2-e884-4657-b6e8-729e3b1b69b1" />
 
 ---
 
